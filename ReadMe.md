@@ -8,9 +8,3 @@ Redes Sociais:
 * [Linkedin](https://www.linkedin.com/in/gabriel-ribeiro-pinto/)
 * [Email](gabriel.grp@gmail.com)
 
-
-# Coloque seu portfólio online **gratuitamente**
-
-Veja [este vídeo](https://youtu.be/xqlQQmE-zTU) onde ensino como deixar seu [portfólio online gratuitamente](https://youtu.be/xqlQQmE-zTU).
-
----
